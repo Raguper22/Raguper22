@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Raguper22
 - 👀 I’m interested in ...Cyber security.
 - 🌱 I’m currently learning ...coding.
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on ...I'm stil thinking 
 - 📫 How to reach me ...plezz don't.
 - 😄 Pronouns: ...he/hem.
 - ⚡ Fun fact: ...Im cool, I like to basic programing.
